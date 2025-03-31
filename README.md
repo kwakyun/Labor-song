@@ -9,4 +9,5 @@
 * [Maroon5 - The Sun](https://www.youtube.com/watch?v=G4g5HetxYOU)
 * [Sandman - Beenzino](https://www.youtube.com/watch?v=ojQoCfTRTkw&list=PLR2_K0OA0AlxG-97zSYDf4u77mkv26kqD&index=8)
 * [Lemon - Beenzino](https://www.youtube.com/watch?v=xq76cRbuYiU&list=PLR2_K0OA0AlxG-97zSYDf4u77mkv26kqD&index=9)
-* [GREENLIGHT -  황세현](https://www.youtube.com/watch?v=x9t5izwzD9s&list=PLR2_K0OA0AlxG-97zSYDf4u77mkv26kqD&index=10)
+* [Red Light](https://www.youtube.com/watch?v=vWF20sKubpE)
+* [Creepy Nuts | Bling-Bang-Bang-Born](https://www.youtube.com/watch?v=mLW35YMzELE)
