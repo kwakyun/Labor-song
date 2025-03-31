@@ -1,5 +1,7 @@
 # My-MusicPlayList
 * [running away | dreamcore playlist](https://www.youtube.com/watch?v=lPXi-5XhDPE&list=LL&index=2)
+* [티거 | 엘리니아](https://www.youtube.com/watch?v=WXXPoTj9y0c&list=PLatF2FKtiNjbK-qZCFLO15vZ-cLaxkWRh)
+* [닌텐도 음악](https://www.youtube.com/watch?v=JRr_Smyf7xw)
 * [МУККА - c kape](https://www.youtube.com/watch?v=vGGLdVuITNA&list=PLR2_K0OA0AlxG-97zSYDf4u77mkv26kqD)
 * [LAKEY INSPIRED - I Found Me](https://www.youtube.com/watch?v=DrbsAp55I6k)
 * [XXXTENTACION - SAD!](https://www.youtube.com/watch?v=pgN-vvVVxMA&list=PLR2_K0OA0AlxG-97zSYDf4u77mkv26kqD&index=7)
